@@ -1,0 +1,1 @@
+# Hollow_Rhombus_Star_Pattern
